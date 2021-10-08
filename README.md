@@ -1,1 +1,1 @@
-![alt text](https://ibb.co/72cKYP9)
+![alt text](https://i.ibb.co/5BDLMm7/milva-edu-database.png)
